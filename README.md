@@ -1,4 +1,4 @@
-![image](https://github.com/Divyank1289/Divyank1289/assets/91774691/05ac3f4f-cd0a-4de1-b6f2-ea6172eb2d03)# 💫 About Me:
+# 💫 About Me:
 HI Myself Divyank 👋👋
 
 
